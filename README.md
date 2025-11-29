@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Arduino Project**
 
-- 📫 How to reach me **astrosup1305@gmail.com**
+- 📫 How to reach me **astrosup1305@outlook.com** or **techmastersupreeth@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
